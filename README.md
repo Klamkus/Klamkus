@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Klamkus
 - 👀 I’m interested in pajton
 - 🌱 I’m currently learning pajton
-- 💞️ I’m looking to collaborate on jajo
+- 💞️ I’m looking for femboys
 - 📫 How to reach me niedasie
 
 <!---
